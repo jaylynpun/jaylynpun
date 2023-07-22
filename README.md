@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jaylynpun
+- 👋 Hi, I’m jaylyn
 - 👀 I’m interested in ... video games
 - 🌱 I’m currently learning ... how to code
 - 💞️ I’m looking to collaborate on ... video games
